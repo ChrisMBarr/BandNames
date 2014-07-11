@@ -130,3 +130,4 @@ Great band names I think of, or my friends think of.
 * Potential alien
 * Spicyface
 * Teletubby Time Bomb
+* Silk Warhorse
