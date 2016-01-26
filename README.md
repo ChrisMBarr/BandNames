@@ -132,3 +132,14 @@ Great band names I think of, or my friends think of.
 * Teletubby Time Bomb
 * Silk Warhorse
 * The Black IP's
+* Jewish Brisket Club
+* Fuzzy Stingrays
+* The Highway Ferrets
+* The Illegal Snow Cones
+* Secret Baby
+* The Dicksy Chix
+* Pseudo Beaver
+* Shortcut to nowhere 
+* Electric Kitty
+* Grandmothers Electric Pinecones
+* Impenetrable Nipples
