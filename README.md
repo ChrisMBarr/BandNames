@@ -143,3 +143,4 @@ Great band names I think of, or my friends think of.
 * Electric Kitty
 * Grandmothers Electric Pinecones
 * Impenetrable Nipples
+* Trojan Gumbo
